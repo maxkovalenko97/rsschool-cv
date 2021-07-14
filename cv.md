@@ -1,4 +1,4 @@
-#Kovalenko Maxim#
+Kovalenko Maxim
 ============
 Email:kovalenko.maxim.1997@gmail.com
 -------------------
